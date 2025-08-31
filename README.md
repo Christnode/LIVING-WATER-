@@ -1,29 +1,7 @@
-LIVING WATER EPISODE 19 || 12TH MARCH, 2024
-By Christnode
-OUR FATHER IN HEAVEN
-Scripture Reading: Matthew 6:9
- “This, then, is how you should pray: “Our Father in heaven,
-hallowed be your name.”
+Living Water
 
-Dear brothers and sisters, today we turn our attention to the opening words of the Lord's Prayer found in Matthew 6:9: "Our Father in heaven, hallowed be your name."
-In these profound words, Jesus provides us with a model for prayer, guiding us into the sacred space of communion with our Heavenly Father. Let us unpack the richness of this opening address and explore the depths of meaning it holds for our spiritual journey.
-"Our Father in heaven" - These words are a revolutionary declaration of our relationship with God. Jesus invites us to approach the Creator of the universe not as a distant deity, but as a loving Father. The term "Father" implies intimacy, care, and a familial bond. It resonates with the truth that, through Christ, we have been adopted into the family of God, becoming His beloved children.
-"In heaven" - This phrase acknowledges the divine majesty and sovereignty of our Father. It reminds us that God transcends earthly limitations and reigns in heavenly glory. While we have the privilege of addressing Him as our Father, we also recognize His exalted position, worthy of our reverence and awe.
+Each day we gather around the Word of God to hear a fresh message that speaks to our hearts and directs our steps. Living Water is more than a lecture—it is a time of spiritual nourishment, encouragement, and challenge. Rooted in Scripture, each message unpacks a passage with practical lessons for everyday life, pointing us to Jesus Christ as the source of hope, strength, and transformation.
 
-"Hallowed be your name" - In these words, we express a desire for God's name to be sanctified and set apart. It's an acknowledgment that God's name is holy and deserving of the highest honor. When we pray for the hallowing of His name, we align our hearts with the Psalmist who declares, "Holy is his name" (Psalm 111:9).
+Through prayerful preparation and Spirit-led preaching, the daily sermon addresses real struggles, inspires faith, and calls believers to deeper obedience. Whether the focus is on God’s promises, Christ’s teachings, or the power of the Holy Spirit, every message reminds us that God is near, His Word is alive, and His grace is sufficient for today.
 
-This opening address serves as a foundation for our prayers, establishing the proper posture and perspective. It calls us to approach God with a combination of familiarity and reverence, recognizing both our cherished status as His children and His majestic holiness.
-
-As we utter these words, "Our Father in heaven, hallowed be your name," let it be a declaration of our dependence on God, a recognition of His sovereignty, and an expression of our desire to see His name exalted in our lives and throughout the world.
-
-May this prayer guide us into a deeper understanding of our identity as children of the Most High, fostering a sense of awe and gratitude for the privilege of approaching our Heavenly Father in prayer. As we embark on this journey of communion, may His name be hallowed in our hearts and in all the earth. 
-In the name of the Father, the Son, and the Holy Spirit. Amen
-
-
-
-https://youtu.be/y83wCrSvVN0
-www.linkedin.com/company/christnode/
-www.web.facebook.com/christnode
-www.tiktok.com/@christnode
-www.instagram.com/christnode/
-www.github.com/CHRISTNODE
+These daily sermons are meant not only to inform the mind but to stir the heart and strengthen the soul. They are a reminder that “man shall not live by bread alone, but by every word that proceeds from the mouth of God” (Matthew 4:4). By listening daily, we learn to walk with God step by step, moment by moment, trusting Him with all our ways.
